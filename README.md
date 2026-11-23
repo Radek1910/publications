@@ -1,7 +1,7 @@
 # Publikacje — Radosław Miśkiewicz
 
 ORCID: [0000-0003-2370-4783](https://orcid.org/0000-0003-2370-4783)  
-Liczba prac: **254** · ostatnia aktualizacja: 2026-11-16
+Liczba prac: **254** · ostatnia aktualizacja: 2026-11-23
 
 
 ## 2026
